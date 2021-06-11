@@ -1,6 +1,6 @@
 ## Terms of Use
 
-"App" as used here in refers to all products and services owned and operated by Voxel Box.
+"App" as used here in refers to all products and services owned and operated by Mini World Craft.
 
 ### Terms
 
