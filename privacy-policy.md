@@ -1,6 +1,6 @@
 ## Privacy Policy
 
-As used in this Privacy Policy, Voxel Box, "We", "Us" or "Our", refers to Voxel Box developed by Voxel Box. Please read this Privacy Policy in order to learn more about the data we collect, what do we use it for and how we protect your privacy.
+As used in this Privacy Policy, Voxel Box, "We", "Us" or "Our", refers to Mini World Craft developed by us. Please read this Privacy Policy in order to learn more about the data we collect, what do we use it for and how we protect your privacy.
 
 ### What information do we collect?
 
